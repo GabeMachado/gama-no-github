@@ -1,0 +1,2 @@
+O curso até agora está sendo ótimo. Nas aulas de GIT a única coisa que eu senti falta foi um pequeno tutorial de instalar do GIT, porém nada que não se resolva pesquisando na internet. As Aulas estão bem explicativa! 
+Eu apenas acrescentaria uma mudança na plataforma onde seria possível saber em que aula eu parei para que não dependa de anotações. 
